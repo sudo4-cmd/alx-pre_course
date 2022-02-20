@@ -1,1 +1,1 @@
-This repo is for ALX SE programme
+ALX SE course is so cool 😎 
